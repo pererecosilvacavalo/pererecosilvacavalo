@@ -1,0 +1,5 @@
+- 👋 Hi, I'm @pererecosilvacavalo
+- 👀 I'm interested in getting rich
+- 🌱 I'm currently learning about github tinkering with my teacher
+- 💞️ I try to collaborate with the price of meat
+- 📫 How to find me: dm me @arthur__leoni
