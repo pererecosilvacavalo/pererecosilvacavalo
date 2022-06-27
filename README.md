@@ -1,5 +1,5 @@
-- 👋 Hi, I'm @pererecosilvacavalo
-- 👀 I'm interested in getting rich
-- 🌱 I'm currently learning about github tinkering with my teacher
-- 💞️ I try to collaborate with the price of meat
-- 📫 How to find me: dm me @arthur__leoni
+- 👋 Oi, eu sou @pererecosilvacavalo
+- 👀 Estou interessado em ficar rico
+- 🌱 Atualmente estou aprendendo sobre mexer no github com meu professor
+- 💞️ Procuro colaborar com o preço da gasolina
+- 📫 Como me encontrar: me mande uma dm @arthur__leoni
